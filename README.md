@@ -1,1 +1,1 @@
-# dddozhdik.github.io/spanish
+# dddozhdik.github.io
